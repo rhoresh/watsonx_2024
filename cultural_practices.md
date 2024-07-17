@@ -65,98 +65,26 @@ There is no official religion in the country in order to show tolerance and resp
 
 SOME OTHER CULTURAL PRACTICES FROM AROUND THE WORLD
 
-In Croatia, Do NOT bring chrysanthemums as a gift. 
+Gifts
+Many countries have special customs regarding flowers and gift giving. Do not bring chrysanthemums as a gift in Croatia, while flowers should only be given in odd numbers in Ukraine.
 
-In Ukraine, flowers should only be given in odd numbers.
+Weddings
+Weddings are also an occasion full of traditions and superstitions. While many religions make use of a special officiant at the wedding ceremony, you do not need a special officiant to conduct the wedding ceremony in Islam. There are many quirky traditions at weddings throughout the world. Did you know that Greek brides are known to tuck a sugar cube into their gloves before their wedding, that Peru has a tradition of baking a fake wedding ring inside the cake, or that Australian weddings often feature a unity bowl, which is filled with stones? Another curious custom is that German wedding ceremonies involves the couple using a saw and Germany also has a tradition of smashing plates and making the married couple clean them up. Some traditions appear particularly peculiar to the outsider. For example, Borneo newlyweds are prevented from using the bathroom after their wedding, Mongolian couples find a healthy chicken liver prior to beginning the wedding ceremony and Russian couples determine who is head of the household by taking bites of bread. The happy couple might not appear to be such in the Republic of Congo, because what are they forbidden to smile during their wedding. Someone who might also not be smiling is the bride before a Kenyan wedding, where it is custom that the father spits on the bride before the wedding. The Bhuddist ""betrothal ceremony"" is known as a Chessian. Newlyweds from Venezuela make a game of sneaking off before the end of the reception. In Fiji, it's extra tricky to ask your beloved's father for her hand in marriage, because you must present him with a tooth from a whale.
 
-You do not need a special officiant to conduct the wedding ceremony in Islam.
+Death and funerals 
+A Muslim widow wears black for one year. The Bahá'í faith requires that the deceased be buried within one hour time's distance from where they died.
 
-Greek brides are known to tuck a sugar cube into their gloves before their wedding?
+Festivals and holidays 
+In Vanuatu, a curious festival called Naghol Land Diving Festival involves men tying vines on their ankles and diving from a huge tower made of wood. This seemingly strange South Pacific festival apparently stemmed from a legend featuring domestic abuse. One more Indonesian tradition: The city of Semarang welcomes the start of Ramadan with a festival known as Dugderan. The mascot of Dugderan is the Warak ngendog, a puppet made to resemble a blend of creatures. The dog is NOT part of the Warak ngendog. Turning to Christian traditions, Paska is a cheese-based food traditionally eaten for Easter in Russia and other countries with predominately Eastern Orthodox Christians. On the other side of the globe on Easter you have the New Zealand Easter bunny hunt on Easter weekend. This bunny hunt is literally a hunt as the bunnies are killed.  
 
-You should not tip in South Korea?
+Social interaction
+You should not tip in South Korea. Staff at different establishments take pride in doing their work well without a tip. Another restaurant-related custom is that you should NOT wipe your hands on a napkin at a meal in Morocco. As for greetings in different countries, it is a common practice in Bangladesh that if the person being addressed is older than the speaker, the person is called by his first name and a suffix that denotes the family relationship. It is pretty likely that a Japanese colleague would ask you about your age or how much money you make at a bar after hours. It is rude to rush the greeting process in Nigeria. Some countries are still not big on gender equality. In Brunei, for example, men and women can't be seen dining together in public. In Brazil, flicking your fingers under your chin is not a sign of disgust. Invitations to a guest to stay at one's home must not be turned down in Iraq. Wearing gloves in Russia when shaking hands is considered impolite. In many Asian countries, it is acceptable to visit your friends at home without invitation or prior appointment. It is not customary to show up on time in Israel. The British are not fans of small talk if the talk is focused on private life. You should never point to a Portuguese person.
 
-In Vanuatu, a curious festival called Naghol Land Diving Festival involves men tying vines on their ankles and diving from a huge tower made of wood. This seemingly strange South Pacific festival apparently stemmed from a legend featuring domestic abuse.
+Cuisine and customer service 
+Ceasar salad was invented in Spain. You should never ask for a doggie bag when dining in France. Each year in Haux, France, the community makes a giant omelet. Flipper pie is eaten during Lent and Easter in Canada (especially Newfoundland and Labrador)?
 
-A German wedding ceremony involves the couple using a saw.
+Religion and superstition
+Pentateuch and Quintach are both words for the first five books of the Bible. You should avoid wearing Purple in Brazil as it is believed to bring bad luck. Sihk faith names their babies by using the first letter of the hymn found on a random page in their holy book. You should never point to someone's feet in Asia. Christ forgave the people of Judea in general and Judas for betraying him on the cross. Among Christians, Christmas is not considered to be a more important holiday than Easter.
 
-Ceasar salad was invented in Spain.
-
-Newlyweds from Venezuela make a game of sneaking off before the end of the reception?
-
-Buddhism has a ""betrothal ceremony"" known as a Chessian?
-
-Pentateuch and Quintach are both words for the first five books of the Bible.
-
-If the person being addressed is older than the speaker, the person is called by his first name and a suffix that denotes the family relationship. This is a common practice in Bangladesh.
-
-Peru has a tradition of baking a fake wedding ring inside the cake?
-
-You should never ask for a doggie bag when dining in France?
-
-Not to be outdone by their neighbors to the south, Canada also began hosting official Iftar dinners in 2015. Stephen Harper began the tradition.
-
-Borneo newlyweds are prevented from using the bathroom after their wedding?
-
-It is pretty likely that a Japanese colleague would ask you about your age or how much money you make at a bar after hours.
-
-The happy couple might not appear to be such in the Republic of Congo, because what are they forbidden to smile during their wedding.
-
-It is rude to rush the greeting process in Nigeria.
-
-Sihk faith names their babies by using the first letter of the hymn found on a random page in their holy book.
-
-Some countries are still not big on gender equality. In Brunei, for example, men and women can't be seen dining together in public.
-
-You should avoid wearing Purple in Brazil?
-
-Australian weddings often feature a unity bowl, which is filled with stones.
-
-The Bahá'í faith requires that the deceased be buried within one hour time's distance from where they died.
-
-Paska is a cheese-based food traditionally eaten for Easter in Russia and other countries with predominately Eastern Orthodox Christians.
-
-Russian couples determine who is head of the household by taking bites of bread.
-
-A Muslim widow wears black for one year.
-
-You should never point to someone's feet in Asia.
-
-Christ forgave the people of Judea in general and Judas for betraying him on the cross.
-
-One more Indonesian tradition: The city of Semarang welcomes the start of Ramadan with a festival known as Dugderan. The mascot of Dugderan is the Warak ngendog, a puppet made to resemble a blend of creatures. The dog is NOT part of the Warak ngendog.
-
-You should NOT wipe your hands on a napkin at a meal in Morocco.
-
-Germany has a tradition of smashing plates and making the married couple clean them up.
-
-In Brazil, flicking your fingers under your chin is not a sign of disgust.
-
-Invitations to a guest to stay at one's home must not be turned down in Iraq.
-
-Among Christians, Christmas is not considered to be a more important holiday than Easter.
-
-Wearing gloves in Russia when shaking hands is considered impolite.
-
-In many Asian countries, it is acceptable to visit your friends at home without invitation or prior appointment.
-
-Each year in Haux, France, the community makes a giant omelet.
-
-In Fiji, it's extra tricky to ask your beloved's father for her hand in marriage, because you must present him with a tooth from a whale.
-
-Leave it to Finland to create a cute festival that became a sporty attraction called the wife Carrying World Championship.
-
-Is it not customary to show up on time in Israel?
-
-The British are not fans of small talk if the talk is focused on private life.
-
-You should never point to a Portuguese person?
-
-Flipper pie is eaten during Lent and Easter in Canada (especially Newfoundland and Labrador)?
-
-What is unique about the Easter bunny hunt in New Zealand on Easter weekend? The bunnies are literally killed.
-
-Mongolian couples find a healthy chicken liver prior to beginning the wedding ceremony?
-
-Buddhists place spices on a newborn's tongue?
-
-What seemingly cruel tradition do Kenyan fathers of the bride carry out? Spitting on the bride.
+Miscellaneous
+Not to be outdone by their neighbors to the south, Canada also began hosting official Iftar dinners in 2015. Stephen Harper began the tradition. Leave it to Finland to create a cute festival that became a sporty attraction called the wife Carrying World Championship. Buddhists place spices on a newborn's tongue.
